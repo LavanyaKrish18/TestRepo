@@ -1,1 +1,1 @@
-Class 3 , still ongoing
+Class 3 , completed
